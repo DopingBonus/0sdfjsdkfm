@@ -1,2 +1,3 @@
-# 0sdfjsdkfm
-Ananı Avradını AA
+# Ananı Avradını AA
+
+ben senin gibi adamın anasını avradını bacısını baldızını soyunu sopunu sülalesini silsilesini gelmişini geçmişini eşiktekini beşiktekini köğeğini kömecini dedesinin yedi ceddini doğurtan ebesini ağlayan bebesini soluduğu havayı içtiği suyu yediği ekmeği sıçtığı boku kafasının tasını beyninin bardağını ırkını dilini dinini cinsiyetini milliyetini hürriyetini cumhuriyetini sabahını akşamını öğleden sonrasını sabah seher vaktini akşam eşref saatini kafasındaki saçı arkasındaki kıçı elinin ayarını bahçenin hıyarını kıçındaki kıllarını boş boş geçen yıllarını şaşı bakan gözlerini kütürdeyen dizlerini memleketinin yaylasını safiyesini aylasını gözlerinin ferini alnının terini babasının kelini anasının saç telini bahar esen yelini düğünündeki gelini beyninin vakkumunu bahçenin zakkumunu tuttuğun kalemini ciğerinin veremini böbreğindeki taşı boynunun üstündeki başı orağını çekicini tüm tanıdıklarının hepiciğini sikeyim.
